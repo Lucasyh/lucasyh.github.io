@@ -1,3 +1,3 @@
-## (Lucasyh's GitHub Page)[https://lucasyh.github.io/]
+## [Lucasyh's GitHub Page](https://lucasyh.github.io/)
 Not finish yet :)
 
